@@ -1,1 +1,2 @@
-# noblox.js-script-2
+# Tags: 
+(Noblox.js), (AGirlJennifer), (Noblox.js script), (Discord Altyapı), (Discord Bot)
